@@ -160,3 +160,5 @@
 
 [很快点完本](http://vipreader.qidian.com/chapter/1018027842/633931859)
 
+[我要发奋图强了！](http://vipreader.qidian.com/chapter/1018027842/651576126)
+
